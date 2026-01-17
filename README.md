@@ -1,4 +1,6 @@
 ## Rei Hernandez 🤗
+- 4th year student @UC Davis
+- Human-centered designer focusing on UI/UX Design
 
 <!--
 **voidkuma/voidkuma** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
