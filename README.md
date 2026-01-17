@@ -1,4 +1,7 @@
-## Rei Hernandez 🤗
+## Rei Hernandez 🤗 
+Thanks for visiting my page!!~
+
+A little bit about myself :) 
 - 4th year student @UC Davis
 - Human-centered designer focusing on UI/UX Design
 
